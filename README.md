@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @hiimel
-- I’m interested in  👀 :)
+- I’m interested in  👀 : )
 - I’m currently learning 🕤
